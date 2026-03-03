@@ -1,0 +1,3 @@
+- An asymptotically tight bound for f(n) - both upper and lower bounds
+- Not every function has a $\Theta$ 
+	- Best and Worst case run in the same complexity class

@@ -1,0 +1,8 @@
+- Observing with objective analysis
+	- looking at the story
+	- compositional elements
+	- time period perspective
+- Subjective relationships
+	- individuals or social interpretations of art and the meaning they pull from the work. 
+- Building respect for the past and their cultures
+- 

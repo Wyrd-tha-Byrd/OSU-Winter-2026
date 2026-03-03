@@ -1,0 +1,430 @@
+#### Medieval bridge
+wouldnt carry weight of tanks so it survived WW2
+## Florence Baptistry
+built outside the florentine church
+had 4 doors:
+- North Doors - Lorenzo Ghiberti
+- East Doors - Lorenzo Ghiberti
+- West Doors - Unnamed Decorations
+- South Doors - Andrea Pissano
+	- Inspired by the stories of John the Baptist
+Arte di Calimala: Wool Merchants Circa 1190
+- Fabric Arts Guild 
+- hosted a competition to search for artists that fit the message with minimal materials and audience
+	- Brunelleschi < Ghiberti
+- Art builds off their forefathers' styles/works/icons/poses
+# Donato di Niccolo di Betto Bardi
+- Donatello
+	- Most famous sculpture, 
+		- David, 1446-1460 Bronze
+		- First free standing sculpture since greco roman period
+		- erotic but sus
+	- Penitent Magdalene, 1440
+		- mary was a rich sex worker
+			- freed of 7 demons
+			- hot woman with long blonde hair usually
+				- Presented by donatello as a wooden hag covered by her own hair
+				- showing motion to invite the viewer to complete the narrative
+				- 
+- Andrea Del Verrocchio
+	-  Created a david sculpture that was clothed for a probably public display
+# Convento di San Marco
+- Filled with stories from the life of christ as decoration in every room
+	- private collection of artwork made for the audience of educated monks
+- Beato Angelico
+	- Produced many works inside the Convent
+		- Mocking of Christ (Cell 7)
+			- 1440-1442
+			- Fresco 181x151cm
+			- Abstract, meditation over the moment of the mocking of christ
+			- Symbolic medieval representation of Christ as larger (more important) than st dominic and the virgin mary
+# Giovanni Bellini
+- St. Francis in Ecstasy
+	- 1475-1480
+	- Scene from his late life
+		- leaving Assisi for a more natural monastic life
+		- Assisi in the far Background
+			- artist was familiar with the skyline
+		- Farmland behind subject
+			- Donkey
+				- associated with Jesus entering jerusalem
+			- Shepard in background
+				- associated with Jesus as the shepard
+		- Rocky cliffside with altar and st francis
+			- Cave that contained
+				- Altar
+					- studying at the altar
+				- Sandals
+					- forgotten because of the divine call
+				- Skull
+					- meditating on mortality and the passion of christ
+				- Bible
+				- Cross
+			- Seated reading the bible, then inspired by the divine light of dog (the sun)
+		- Lacking golden halos but implying with form of relative background
+			- naturalist ideas coalescence
+# Alessandro di Mariano di Vanni Filipepi
+## Botticelli (Little Barrel)
+- Sandro Botticelli
+	- The Birth of Venus 
+		- Featuring nude Venus standing in a shell
+			- Body of Venus (sculptures from Medici collection) and face of Simonetta Vespucci
+				- Contrapposto
+					- common pose
+						- natural posture
+						- relaxed
+					- shifting weight from leg to leg
+			- covering for modesty/casual
+			- From the island Cyprus/Aphrodite
+				- name means "risen from the foam"
+					- from the story of Kronos castrating and overthrowing Ouranos
+					- Ouranos' massive dong became the island
+			- Shell is like a boat carrying her to shore
+				- Christian symbol of baptism
+				- Aphrodite - Shell represents genitalia
+				- 
+			- Zephyr blowing Venus' ship ashore
+				- embraced with Chloe, Wife/muse of Zephyr
+				- Horae of Aphrodite on shore preparing to cover her
+					- Surrounded by flowers
+						- representing Spring/Summer
+						- Anemones
+						- Cornflower
+						- Roses
+						- Bulrush in the foreground
+		- Botticelli was trained as a goldsmith as a child
+		- Model of Venus
+			- Simonetta Vespucci
+				- Widely considered most beautiful woman in Florence at the time
+		- Primavera
+			- Ofizie Museum
+			- gift to Lorenzo di Medici for private collection
+			- 1481-1492
+			- Venus at the center
+				- similar but more generic Venus face
+				- Simonetta was dead by this time
+			- Celebrate the arrival of spring
+				- Ode to Beauty
+			- Out of time "Mythological" subject matter
+			- See the painting in 3 aspects:
+				- Mythological aspect
+					- The Three Graces - accompaniment of Venus
+						- Symbols of Chastity, Charm, Beauty and Purity
+							- Aglaia - Shining One
+							- Euphrosyne - Joy
+							- Thalia - Flourishing
+						- Dancing with each other in the nude
+					- Representation of the wind, Zephyr
+						- blue, puffy cheeks, flying, clothes floating around his body
+						- blowing the hair of a woman tending to the pregnant bride
+							- kidnapping the Nymph Chloris, transformed into Flora
+								- Flora: The goddess of Spring, eternal bearer of life, and is scattering roses on the ground
+									- Flora/Florentina
+					- Mercury
+						- symbol of rationalism
+							- guiding people away from their base instincts
+					
+				- relationship of Renaissance to the classical era
+					- more documentarian, realistic
+					- over 500 species of plants identified in the scene
+						- with over 190 unique flower species
+					- Neoplatonism
+						- Love is an illogical mysterious force that leads a man to the contemplation of God 
+						- role of beauty in the elevation of the spirit while arousing aesthetic sensations
+				- Relationships of the wedding/joyous scene
+					- Commemorating a wedding
+						- The painting shown are a "symbol of Procreation"
+							- The main goal of Dynastic Marriage
+						- For the wedding of Lorenzo di Medici
+# Marsilio Ficino
+- Mission: Combine philosphy and Christianity
+- Celestial Venus - As representation of sacred and divine love
+	- pagan story
+	- Nude female
+	- acceptable to contemporary christian thinking
+# Girolamo Savonarola
+- Strict monk (Dominican)
+	- Inspired a burning of the "vanities"
+		- anything that distracted from the studies of god
+			- books, instruments, paintings all burned
+		- Called "the Fire of the Vanity"
+
+# Leonardo Da Vinci #leonardodavinci
+- 1452-1519
+- Experimentalist, Engineer, Scientist, Sculptor, Mathematician, Botanist, Musician, Writer, Anatomist, Painter
+- From Vinci, Tuscany
+- illegitimate Son of a peasant woman, and a successful notary
+	- beginning his life facing hardship and obscurity
+	- Couldn't attend formal education
+	- Learned as an observer of nature
+		- Loved and respected every living creature
+		- He believed every animal should live free
+			- freed caged birds at the market
+		- Loved dissection of cadavers
+			- Discovered the function of the heart
+				- discovered the heart was a pump, not a heater
+		- Passionate Botanist
+			- studied structures and relation of plants and water for a long time
+			- until then it was believed that plants fed on the earth
+			- first to understand the relationship of tree rings and the age of the tree
+- He wrote backwards
+	- somewhat like a code, making it harder to access his knowledge without him
+	- left handed, could have been to avoid smudges
+- 400 years before helicopters
+	- he created the Arial Screw
+	- also designed Parachutes
+- Created a fighting vehicle 
+- Friends will Botticelli
+	- opened a restaurant, Le Tre Rane di Sandro e Leonardo
+		- The three frogs, from Sandro Botticelli and Leonardo Da Vinci
+		- it was a fine dining concept
+			- I can't fucking believe that everyone has always hated small plates 😭
+			- served small plates, lots of people complained bc they wanted big heavy food
+			- pioneer of Nouvelle Cuisine
+- ## The baptism of Christ
+	- Verrochio and Leonardo were commissioned 
+	- First official painting with Leonardo's Painting
+	- 1475-14
+- ## Virgin of the Rocks 
+	- 1483-86
+- ## Mona Lisa 
+	- 1503-1506
+	- Mona is short for Mea Domina
+		- Mia Signora/My Lady
+		- Lisa Gherladini, The wife of Francesco del Giocondo
+		- Gioconda - Female Gendered conjugation of Husbands Name
+			- Gender is a meaningless construct in Latin
+	- Landscape of Milan
+		- not literal but very similar style geology to what is actually there
+		- invented by Leonardo's interest in Geography/Geology
+	- Portrait style was changed by face-on perspective
+		- 3/4 profile styles were a vast change from the classically inspired side profile
+		- Combining linear perspective and newer profiles
+	- #### Leonardo's Study of Optics
+		- Discovered the central area of the retina - Fovea picks up small details
+			- like the edges of monas lips
+			- The area surrounding the fovea meanwhile are best at picking up the shadows and shadings of black/white
+			- As you change position relative to the painting
+				- The shadows suggest movement to the eye
+	- #### Popular because:
+		- Art History
+			- Marcel Duchamp
+				- Dadaist postcard of Mona with Mustache (She has a great ass)
+			- Lent to the US National Gallery of Art (1963)
+				- First Lady at the time Jackie Kennedy Convinced France's Minister of Culture
+			- Became a pop culture icon, being reproduced millions of times
+				- One of the most famous copies is in Spain
+					- at some point a student made a copy in Leonardo's workshop
+					- Originally bright and then landscape of copy was covered with black after the finish of the painting
+				- Original Painting was probably cut to frames in antiquity
+			- Targeted for Ecological Protests (throwing soup to stop Oil refining)
+			- Invented a technique for smokiness/haziness that subtly softens outlines in the paintings
+				- "Sfumato/Sfumare" - Blurring outlines into the background like reality bending light around bodies with mass. Blending with a smokiness
+			- Painted on the base of Lead White to add depth/luminosity
+				- Small brushes used around the face
+				- used iron and manganese mix for the shadows around Mona Lisa Smile
+					- added significant 3D depth
+		- Mythology
+			- Leo was Gay or Trans
+				- Face was a "self Portrait of Leo"
+			- Stolen by:
+				- Vicenzo Peruggia (1907)
+					- Peruggia kept the painting in his Paris Apartment for two years
+# Raffaello Sanzio
+- Embodied the Spirit of the Renaissance
+- since 11yr old showed great promise as an artist
+- Twink boy - died young because of having too much sex
+	- got sick from getting too much dick
+- Competition between Raffa and Leo
+	- to work with the pope
+		- Pope chose Raffa
+			- Because of:
+				- brighter imagery
+				- more traditional composition
+				- Classical representations of holy figures
+- #### Madonna and Child
+	- John the Baptist
+		- Offers the cross to Jesus
+	- Jesus
+		- Baby, realistic
+		- Leaning on Mother and Cross
+		- Pointing up to the heart of the Cross
+			- part of the narrative of the future sacrifices of Christ
+	- Virgin Mary
+		- Holding jesus from falling over
+		- Sitting on a rock or something
+	- Background
+		- Lake
+		- Atmospheric Perspective
+			- Changing color of mountains as space continues
+	- Composition
+		- Naturalism supported by strong geometry
+			- to look organic but strong
+		- LE TRIANGLE
+		- Red Poppy
+			- associated with the "Forever Sleep"
+			- Mourning death
+			- 
+- #### La Fornarina 
+	- 1519-1520
+	- Daughter of a baker
+	- Muse of Raffa
+- #### Stanze - Just means room
+	- private library of the pope
+	- What raffa was chosen for by the pope
+	- Elements:
+		- Personification of Poetry
+			- NVMI NE AFFLA TVR
+			- holding a book and harp
+				- Harp associated with Apollo
+					- Patron of Poetry
+			- Sacred Golden Background
+			- beautiful blue and white clothing
+		- Personification of Theology
+			- DIVINAR RER NOTI TIA
+			- holding a book (bible) above the clouds pointing to "god"
+			- Wearing red dress, white scarf, and green cloak
+				- based on how Michelangelo depicted the Delphic Sybil
+		- Wall of Philosophy
+		- Wall of Jurisprudence
+		- School of Athens
+			- 1509-11
+			- part of the Vatican museum
+			- Pastel colors
+			- Grouping of the classical philosophers in the School of Athens Challenging each others ideas
+				- Aristotle
+					- student of Plato
+					- pointing toward the earth, calling to the real/rational
+						- Rejected the idea of a separate world of Forms and believes that the physical world is the only reality
+						- Points to the world urging us to go out and gain knowledge through experience 
+						- portrayed as similar to Leonardo's self portrait
+						- Holding a book titles "Etica"
+						- clothes symbolize:
+							- water - blue
+							- Earth - Yellow-ish green
+							- shoes - higher social class
+						- Grounded in his stance
+						- Personal tutor of alexander the great
+							- personal social status was high as an extension of the tutee
+								- gold decorations all over his clothes
+						- Separates the side with philosophers who are concerned with the real
+							- Euclid - Architect and father of geometric contstruction understanding
+								- Portrayed as Bramante friend of raffa and architect of thee time
+								- Euclid is wearing a robe that says "Bramante" on the collar
+							- Ptolemy
+								- famous for Geocentric understanding of the universe
+								- Reflected in the Bible
+								- Responsible for the first maps of Europe
+									- Thought Europe was the entire world, the rest was "Terra Incognita"
+									- Still arced aka not flat
+							- Zoroaster
+								- Father of the Eternal Fire
+								- First to study Cosmology
+				- Plato
+					- pointing up, believing in the theoretical idea of God
+						- "We are born with precious innate knowledge gained from the real of the forms"
+						- knowledge and truth are objective and can be discovered through reason and contemplation rather than through sensory experience
+						- Holding a book titles "Timeo"
+						- clothes symbolize
+							- Fire - Red
+							- Air - Greyish white
+							- no shoes - poor
+						- almost floating in how he stands
+					- Separates the room to the side of philosophers concerned with issues of the ideal 
+						- Pythagoras - Theoretical Mathematician
+				- Socrates
+					- Based on portrait sculptures of the Socrates
+					- Socratic Method:
+						- By asking questions to learn about your belief
+						- you learn more by the challenging questions being asked of you
+						- uncritical but still challenging conventional wisdomn and to encourage people to think for themselves
+			- Two statues in background
+				- Apollo on the left
+					- God of art and communication
+				- Athena of the right
+					- Goddess of war and wisdom
+			- Hypatia 
+				- Looking at the viewer
+				- on the side of the Ideals
+				- Neoplatonist, Astronomer and mathematician in Alexandra
+			- Self Portrait of Raffa
+				- On the side of the Rational
+				- He felt that the artist was working in the real world and expressing the real world in his works
+					- Changing the perception of artists as "artisans" to thinkers and genius
+					- Mathematics is at the base of painting and thusly his philosophy
+			- Heraclitus
+				- Portrayed as Michelangelo
+					- Both famous loners
+					- wearing dog-skin boots
+						- A characteristic homage to Michelangelo
+					- On the side of abstract philosophy
+					- Poet
+						- Pensively drafting a poem on a pedestal
+							- expressing the intangibility of creativity that we can never control
+				- Painted like a Michelangelo painting from the Sistine Chapel
+- ### Sistine Madonna
+	- 1513-1514
+		- holy conversation piece
+			- inviting the viewer to talk about the context and subjects of the painting
+		- now in Cologne, Germany
+	- Saint Sixtus 
+		- pope then became saint
+			- symbolized by a pope hat removed from his head
+	- Saint Barbara
+		- lived during classical era
+			- Christianity was persecuted by pagans
+		- symbolized by tower
+			- three windows open for the trinity
+			- imprisoned in tower by father
+			- beheaded for her conversion to Christianity
+				- martyr
+					- holding palm branch
+		- knee bent to the Virgin Mary
+	- Heavenly setting
+		- Two Cherub
+			- not supposed to be there?
+				- two young boys amazed by raffa's painting and included them later
+				- OR
+				- Raffa saw two boys amazed with baked goods and included them as a symbol of innocence
+		- Cloud background
+			- made of tens of faces
+				- angels creating the frame of heaven
+# Michelangelo Bonaroti d'Florentini
+- 1475-1564
+- Pieta
+	- 1498-1499
+	- Marble
+	- Piety - the scene of christ dead in the arms of Mary before the burial
+	- Inside the Vatican first entryway to the left
+	- iconography comes from gothic period
+		- medieval gothic style was very symbolic and expressive
+		- styled to meet the renaissance design language
+	- Jesus just look eepy
+		- challenging the viewer to see the beauty in the moment rather than the pain of christ
+		- foot rests on cut trunk of tree
+			- resurrecting plant
+			- support for sculpture
+			- connection to the wood of the Crucifix
+		- delicate and beautiful
+			- soft details of the wounds
+		- Bro had three incisors?
+			- sculpted into the mouth of Christ's body
+			- belief at the time
+				- believed to be the tooth of sin that jesus died to remove from our bodies
+				- symbol of taking the world's sin to spare mankind
+	- Mary looks at peace and still sad
+		- sitting on rock
+			- geological connection to the place where christ was crucified
+		- weeping and holding the body up
+		- wearing a belt
+			- holding up her robe
+			- bears his name in Latin 
+				- scribed in frustration after critique and misattribution 
+		- The implausibly youthful virgin
+			- virgins will remain beautiful and youthful as long as the virginity was maintained
+			- incorruptible purity
+				- Comes from Dante Alighieri's imagination in the Divine Comedy
+					- "Virgin Mother, daughter of your son"
+						- Virgin mary is daughter of christ and mother of jesus
+							- logic defying youth
+			- Belief at the time from public interpretations of Dante's work

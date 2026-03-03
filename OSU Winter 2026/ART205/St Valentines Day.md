@@ -1,0 +1,10 @@
+- Killed in 3rd Century
+	- Killed by romans
+		- For his faith in christianity
+			- Symbol is angels or the individual holding a palm branch 
+- Saint of the lovers
+- "Parliament of Fowls"
+	- Chaucer written poem
+		- first to associate St. Valentine with romantic love
+- February 14th originally, was a mark of the start of spring
+- 

@@ -1,0 +1,5 @@
+- Uses similar notation (Big-O)
+- Can be used in measuring space/storage/memory reqs of an algo
+- Each merge op merges two sorted lists into a temp new list of length at most n
+- a list of length n = O(n) space complexity
+- Trade-offs may be made in optimization for runtime vs space complexity
