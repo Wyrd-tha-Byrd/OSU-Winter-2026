@@ -391,7 +391,7 @@ Arte di Calimala: Wool Merchants Circa 1190
 				- angels creating the frame of heaven
 # Michelangelo Bonaroti d'Florentini
 - 1475-1564
-- Pieta
+- ### Pieta
 	- 1498-1499
 	- Marble
 	- Piety - the scene of christ dead in the arms of Mary before the burial
@@ -428,3 +428,119 @@ Arte di Calimala: Wool Merchants Circa 1190
 						- Virgin mary is daughter of christ and mother of jesus
 							- logic defying youth
 			- Belief at the time from public interpretations of Dante's work
+- ### David
+	- 1501-1504
+		- carved from a discard marble
+			- 1463 - Agostino di Duccio
+			- 1476 - Antonio Rossellino
+			- slab of marble left out for 25 years
+		- Piazza della Signoria 
+			- political center of florence
+			- sculpture copy is outside in place of the original which is in a museum nearby
+		- Comparison of the Davids
+			- #### Michelangelo
+				- gargantuan (17 foot)
+				- masculine eroticism
+					- representing the power of florence
+					- stoic
+						- looking at the challenge of Goliath
+							- you see his face as you enter/exit the Piazza
+							- fear/bravery in the expression
+							- Exotropia
+								- eyes pointing towards goliath but only visible from below and to the right of the statue
+									- Pupils are drilled to catch the light dramatically
+										- heightens the tension/concentration of the moment
+									- Renaissance Idea: Eyes contain the Soul
+							- Psychologically preparing while remaining relaxed
+				- beautiful example of Michelangelo's understanding of the human anatomy 
+					- showing veins plumping with excitation
+						- swollen jugular associated with physical excitement 124 years before it was documented in medical science
+				- contraposto
+					- balance and contemplation
+					- relaxed
+				- sling to identify david
+				- The characteristics of David
+					- Internal Tension
+					- Idealized Calm
+					- Psychological drama 
+					- Balanced form
+					- Hero as Thinker
+			- #### Bernini
+				- human sized
+				- dynamic scene
+					- slinging stone
+				- Marble
+				- masculine but not erotic
+				- naturalist/baroque posture
+					- action and drama
+			- #### Donatello
+				- human sized (7 foot)
+				- bronze
+				- holding sword
+				- femme eroticism
+					- victorious
+					- relaxed
+					- feathers go up leg for support
+- God separating the Light from Dark
+	- added detail of brain anatomy in the neck of god
+- Dissected many bodies to understand 
+- Saw himself as a sculptor
+	- was also a good painter, architect, etc
+	- Sculpted by cleaning the extra material from the idea inside the marble
+- Ceiling of Sistine chapel
+	- painted first
+		- then the last judgement
+	- Panels of the story of Genesis
+		- unconventional order
+			- enter seeing the drunkenness' of Noah
+			- going backwards to the point of innocence and beginning 
+			- Creation of Adam
+				- human is an empty vessel without god 
+				- we make the choice to touch the hand of god
+				- god framed with brain shaped cloth frame
+					- supported and surrounded by angels
+					- integrated the shapes to become more accurate representation of a brain dissection
+					- Eve is coming out of God's ribs
+						- nude women are seen as explicit outside of the story of Eve
+					- God is pointing to a sad baby
+						- sad because of the fall of mankind
+			- separation of light and dark is last
+			- Creation of Eve
+				- devotional/respectful gestures
+				- not touched by god
+					- invited to rise
+- Last Judgement
+	- 1535-1541
+	- restored 1978-1983
+	- Sainte Bartholomew
+		- Skinned alive as part of his martyrdom
+		- "He was killed alive" - Dr. Daniele di'Lodoviccio
+		- literally portrayed as an empty skin or a flayed man
+		- michelangelo's self portrait
+			- feeling of emptiness
+		- Minos is a King of Crete, Son of Zeus and Europa
+			- appointed to guard the entrance of hell
+				- judge of souls
+			- From the Divine Comedy
+			- wrapped his tail around the soul the same amount of times as the circle the soul belongs in
+	- Biagio da Cesena
+			- Spoke out against Michelangelo
+			- represented as a soul in front of minos
+				- with ears and teeth of a donkey
+				- snake biting his dick
+				- above the door to leave the Sistene chapel
+		- People are placed purposefully in the narrative line (diag from top left to bottom right)
+	- monsters in a cave behind the cross
+			- Allegory of the cave
+				- explains the power of knowledge and perspective
+				- viewers in the cave see the shadows of puppets as reality 
+					- only sensory experience can be interpreted as reality
+						- "from the lack of knowing god"
+					- basically how Michelangelo viewed non christians
+# Florence Mountains
+- source of the purest white marble in the world
+- used to be mined outside and is now mined under the mountains in tunnels
+- # Saint Bartholomew
+	- Marco D'Agrate
+	- 1562
+	- a man draped in his own skin, bearing his muscles to the world

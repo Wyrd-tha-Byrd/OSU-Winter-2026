@@ -1,0 +1,48 @@
+- Started in the 5th Century
+- A group of islands that make up the City State
+- Republic of Venice 
+	- was a maritime power
+	- venue of the crusades
+	- center of commerce
+- There are almost no cars in venice
+	- transportation by Gondola or walking
+- Built on an Archipeligo
+	- 117 Islands
+- St Mark's body lies in the Cathedral
+	- Inside is covered in Gold
+		- Comes from trade with Byzantium
+		- Pala d'Oro
+			- one of the most precious Altars built at the time
+			- show of power and wealth
+- # Giorgione
+	- Sleeping Venus
+		- 1510
+		- regular woman laying down
+			- just eepy
+			- Flowing with the hills
+- # Titian
+	- Finished Sleeping Venus
+	- ### Venus of Urbino
+		- 1538
+		- Oil on Canvas
+		- Commissioned painting of a wife
+		- Reclined with a dog on a Chaise Lounge
+			- Dog
+				- Symbol of Faithfulness
+		- Servants in background
+			- symbol of wealth
+		- Holding flowers 
+			- perspective points to her "flower"
+			- one flower dropped
+			- Painting about her hitting puberty
+				- she can have kids now ig
+		- Symptomatic of sexist social structures that reduce women, real or painted, to passive sex objects displayed for visual consumption
+		- Started the "naked women to be viewed by men" trend
+	- ## Look vs Gaze
+		- Look: a perceptual modde open to all
+		- Gaze: a mode of viewing reflecting a gendered code of desire
+			- Objectification of Woman
+			- Nudity implies subordination
+			- Changed Women's perspective of themselves
+				- All Titian's Fault
+				- persisted to modern times 😭

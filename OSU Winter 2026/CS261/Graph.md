@@ -1,4 +1,4 @@
-- # #Graphs
+- # Graphs
 	- A collection of objects in which pairs of objects are related or connected in some way
 		- very generic description, basically everything can be represented as a graph
 		- ### examples
